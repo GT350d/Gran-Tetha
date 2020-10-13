@@ -1,2 +1,2 @@
 # Gran-Tetha
-Looking for professional Developer and CODEr for a new DeFi token for a country's local market
+Looking for professional Developer to join CORE TEAM for a new DeFi platform ( Gran-Tetha ) for a country's local market. A new platform with HUGE differences to the alreadty existed ones. Higher interest rates , Simpler UI for unexperienced or old USERs, adding some Tokens coverage that you cant find anywhere ( for ERC20 tokens- users can get interest on their ERC20 Tokens no matter what token it is while it is tradable and has price and is covered in more than 3 DEXs/CEXs ).
